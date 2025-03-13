@@ -1,5 +1,5 @@
 👋 Hi, I come by many names
-You can call me L, El, Rio, Fx, Elio
+You can call me L, El, Rio, France, Xavier
  
 👀 I’m interested in many things
 Games, music, human interaction, numbers
